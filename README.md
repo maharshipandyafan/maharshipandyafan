@@ -34,7 +34,7 @@ ur welcome ;)
 <h2 align="center"> 🤔 About me 👨‍💻 </h2>
 
 Eyyyy!!! <br />
-I am <b>David Vargas</b> better known as 'DavidsDvm'🕵🏼‍♂️ <br />
+I am <b>Maharshi Pandya</b> better known as 'Inferno'🕵🏼‍♂️ <br />
 I am from <strong>Colombiaaaaa 🇨🇴🇨🇴</strong> with an "o" not an "u"☕☕ <br />
 I'm a guy who love develop new things 🖥️ <br />
 So... I am more than a robot coding 🤖, I am a real human trying to learn new things and develop incredible projects with ❤️ meeting incredible people on the way🚀<br />
